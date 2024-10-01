@@ -1,2 +1,2 @@
 Moa Magnfors heter jag!
-Jag byter lakan minst en gång i veckan, inte för att jag är äckligare än någon annan (möjligtvis tvärtom).
+Jag är besatt av nytvättade-lakan-känslan och byter minst en gång i veckan.
