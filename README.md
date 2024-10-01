@@ -1,2 +1,2 @@
-# ht24-html-prepp
-Prepp-uppgift HTML &amp; CSS Lektion 1
+Moa Magnfors heter jag!
+Jag byter lakan minst en gång i veckan, inte för att jag är äckligare än någon annan (möjligtvis tvärtom).
